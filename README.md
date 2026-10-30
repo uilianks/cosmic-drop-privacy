@@ -1,0 +1,1 @@
+# Cosmic Drop: privacy policy
